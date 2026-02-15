@@ -106,4 +106,4 @@ I am open to remote opportunities with companies worldwide, contributing analyti
 
 ## 📫 Let’s Connect
 
-- LinkedIn: https://www.linkedin.com/in/veronica-souza-829363b4b
+- LinkedIn: https://www.linkedin.com/in/veronicavanessams
